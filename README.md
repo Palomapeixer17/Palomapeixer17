@@ -1,6 +1,6 @@
 
 
-oi me chamo paloma🐈‍⬛🌈🥖🍞💚🐕‍🦺🖕
+oi me chamo paloma🐈‍⬛🌈🥖🍞💚🐕‍🦺
 
 só isso to sem criatividade
 
